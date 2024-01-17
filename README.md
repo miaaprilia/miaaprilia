@@ -9,15 +9,15 @@
 
 - 👯 I’m looking to collaborate on [DigiHouse](https://github.com/Capstone-Tim-12)
 
-- 👨‍💻 All of my projects are available at [https://www.canva.com/design/DAF59DPj0H8/QH5UiRN-9NqnEwMk4OEqDg/edit?utm_content=DAF59DPj0H8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAF59DPj0H8/QH5UiRN-9NqnEwMk4OEqDg/edit?utm_content=DAF59DPj0H8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 👨‍💻 All of my projects are available at [https://bit.ly/47DJc7C](https://bit.ly/47DJc7C)
 
-- 📝 I regularly write articles on [https://miaapriliaa.blogspot.com/](https://miaapriliaa.blogspot.com/)
+- 📝 I regularly write articles on [https://bit.ly/3vvs2vF](https://bit.ly/3vvs2vF)
 
 - 💬 Ask me about **Quality Assurance & Technical Writer**
 
 - 📫 How to reach me **miaaprilia2803@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J2YCcHaOVSydV_vxxF0tFjiE-4-K9rTA/view?usp=sharing](https://drive.google.com/file/d/1J2YCcHaOVSydV_vxxF0tFjiE-4-K9rTA/view?usp=sharing)
+- 📄 Know about my experiences [https://bit.ly/3vBuVuZ](https://bit.ly/3vBuVuZ)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
