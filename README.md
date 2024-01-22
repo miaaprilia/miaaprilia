@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on [DigiHouse](https://github.com/Capstone-Tim-12)
 
-- 👨‍💻 All of my projects are available at [https://bit.ly/47DJc7C](https://bit.ly/47DJc7C)
+- 👨‍💻 All of my projects are available at [https://bit.ly/424Ihw1](https://bit.ly/424Ihw1)
 
 - 📝 I regularly write articles on [https://bit.ly/3vvs2vF](https://bit.ly/3vvs2vF)
 
